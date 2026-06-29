@@ -1,4 +1,4 @@
-#  
+#  bridger western Script updated offers the most advanced bridger western Script, with auto-sell and speed. Perfect for dominating any match.
 
 
 
